@@ -1,5 +1,5 @@
 # Hi! My name is Keiana 😁
-======
+
 ## I am a graduate student at Arizona State studying Graphic Information Technology.
 
 I am fairly new to coding and hope to improve my skills this semester.
