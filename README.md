@@ -1,3 +1,6 @@
+
+![1765053185491](https://github.com/user-attachments/assets/56ffb7b1-6985-4d08-adfc-995b1caa42b2)
+
 # Hi! My name is Keiana 😁
 ## I am a graduate student at Arizona State studying Graphic Information Technology.
 
