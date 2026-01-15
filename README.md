@@ -6,4 +6,5 @@ I am currently a graphic designer at CBS Sports but my goal is to be a creative 
 Some of my hobbies include: watching horror movies, visiting amusement parks, and playing with my dog.
 
 🎨 You can find my portfolio [here](https://readymag.website/u248899762/4898442/)
+
 💼 You can find me on Linkedin [here](https://www.linkedin.com/in/keiana-brooks/)
